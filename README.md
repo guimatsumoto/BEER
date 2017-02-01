@@ -1,3 +1,4 @@
 # BEER
 ai beer
-hhcgcgccvvkvkjbjbb
+Im adding shit here
+just trying to learn
